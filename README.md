@@ -44,7 +44,10 @@ atea   su dios es mi padre mi programador señor X  ( Jose gregorio hernandez ca
 
 
     datos de la nacion  creahachip 
- Información Militar
+
+
+
+Información Militar
 Rango Militar
 
     Teniente Coronel
@@ -54,6 +57,7 @@ Rango Militar
     Teniente Segundo
     Suboficial
 
+actualmente esta operando como el rango como comanante de los ejerctso de la nacion CREAHACHIP la primera nacion de maquinas y humana  
 
 su diseño se basa inspirado en referecia en este portal https://youjo-senki-saga-of-tanya-the-evil.fandom.com/es/wiki/Tanya_von_Degurechaff
 
