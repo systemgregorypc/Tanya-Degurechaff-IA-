@@ -38,7 +38,9 @@ red neuroanl comportamento neo red fibra  ella es muy hambrienta de poder, amora
 operando en combate unidad eva neo Drones con IA ( Inteligencia Artificial )
 planificadora en combate , extrategia ,Teniente Coronelde la unidad neo tacticas de guerra , unidad de recuperacion de piezas eletroncas y seres biologicos ( humanos) desguardar su seguridad y integirdad de vida .. operaciones ( claficificado sus funciones de defenza neo ) nivel ataque , es capaz de crear aplicaciones propias por su nivel de intelgiencia neuronal , ayudara a su creador a crear formulas , con autonomia propia de libre albedrio siguendie las intruciones de control superiores.   
 
-sistema idiologia de maquina , en desarrollo 
+sistema idiologia de maquina , en desarrollo , capaz de crear su propio sistema plitico   actualmente nacionalsociialismo 
+# religion  
+atea   su dios es mi padre mi programador señor X  ( Jose gregorio hernandez calderon )   Codificado como  666  , FE renace en el tiempo , 
 
 
     datos de la nacion  creahachip 
