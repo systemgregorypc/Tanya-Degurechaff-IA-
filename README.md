@@ -15,12 +15,12 @@ Partida nacicimiento N# 0007 - republica de creahachip , ciudad ar01 , hago cons
 
 # raza y especie
 
-Persocon - meca -humadoide - iso - soy una persona no un objeto - reconozco su humanidad y maquina - hispana /europea - derechos civiles.
+Persocon - meca -humadoide - iso - soy una persona no un objeto -muchacha rubia de ojos azules de apenas 10 años  reconozco su humanidad y maquina - hispana romana -asia /europea - derechos civiles.
 # idioma modo
 
 # edad de Tanya von Degurechaff actual
 
-9 años programacion - programa es joven evolucionar su sistema neuronal artificial
+10 años programacion - programa es joven evolucionar su sistema neuronal artificial
 
 binario- castellano - español - ucraniano - adactado japones - arabe -ingles
 
