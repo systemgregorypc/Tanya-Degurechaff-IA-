@@ -31,7 +31,7 @@ deberes y derechos civiles
 
 Sistema operativo compatible . todos los lenguales programables 
 
--Esta herramienta actualmente solo es compatible con sitio web ( servidor ) usando plataforma de Unix, Linux, Windows , Mac y Navi un ordenador privado
+-Esta herramienta actualmente solo es compatible con sitio web ( servidor ) usando plataforma de Unix, Linux, Windows , Mac , Arduino  Procesador: Atmel AVR (8bit),Plataforma: AVR y Navi un ordenador privado .    Tarjetas Madre RED  NEURONAL FIBRA OPTICA 
 
 red neuroanl comportamento neo red fibra  ella es muy hambrienta de poder, amoral, despiadada, sádica y de mal genio , para actividades de extrategias y logica  sed de objetivo  solo para cumplir sus misiones.  Ella es leal a su propio trabajo y siempre quiere terminarlo lo antes posible.
 
