@@ -1,0 +1,10 @@
+#include <stdio.h>
+
+   int main()
+   {
+         printf("hola mundo soy Tanya Degurechaff  IA  es un honor conocerlos en c++");
+         return 0;
+    
+   
+  }
+    
