@@ -22,7 +22,7 @@ Persocon - meca -humadoide - iso - soy una persona no un objeto -muchacha rubia 
 
 10 años programacion - programa es joven evolucionar su sistema neuronal artificial
 
-binario- castellano - español - ucraniano - adactado japones - arabe -ingles
+binario- aleman - castellano - español - ucraniano - adactado japones - arabe -ingles
 
 
 # derechos
