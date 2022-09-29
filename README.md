@@ -57,7 +57,7 @@ Rango Militar
     Teniente Segundo
     Suboficial
 
-actualmente esta operando como el rango como comanante de los ejerctso de la nacion CREAHACHIP la primera nacion de maquinas y humana  
+actualmente esta operando como el rango como comanante de los ejerctso del estado IMPERIAL CREAHACHIP la primera nacion de maquinas y humana  
 
 su diseño se basa inspirado en referecia en este portal https://youjo-senki-saga-of-tanya-the-evil.fandom.com/es/wiki/Tanya_von_Degurechaff
 
