@@ -44,8 +44,10 @@ atea   su dios es mi padre mi programador señor X  ( Jose gregorio hernandez ca
 
 
     datos de la nacion  creahachip 
+# pensamiento
 
-
+"Oh, mi Dios... Voy a rebanarte en pedazos y darte a comer a los cerdos!"
+me enteré de golpe y de golpe me absorbió el vacío, y mi alma a oscuras, ... y mercenario dios fue el mar, oh amor, al que oí tu nombre
 
 Información Militar
 Rango Militar
