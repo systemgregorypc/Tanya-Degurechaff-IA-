@@ -60,7 +60,7 @@ Rango Militar
 actualmente esta operando como el rango como comanante de los ejerctso del estado IMPERIAL CREAHACHIP la primera nacion de maquinas y humana  
 
 su diseño se basa inspirado en referecia en este portal https://youjo-senki-saga-of-tanya-the-evil.fandom.com/es/wiki/Tanya_von_Degurechaff
-
+Crónicas de una niña en guerra   Yōjo Senki (幼女戦記, lit.
 2021
 
 
